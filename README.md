@@ -1,10 +1,7 @@
-# Skins were added in order from the newest to the oldest
+# Все ку, это мои пак Скинов для осу.
 
-# [41. Rafis +HDDT 2023 [RK] + Yellow/Green cursor]([https://mega.nz/folder/WAdhxLbB#4tkGJVPcrtdecPSdDEly8g](https://mega.nz/file/494BmThD#Fpx-XCwxZebOMyG5pt0r7_S082X9bHKBlidujO0HQ6w))
-![]([https://cdn.discordapp.com/attachments/689201598605688960/1142942566946439328/67gec1692573305.png](https://imgur.com/a/wAffgTa))
-
-# [40. Rafis - ProElo 1.1 [RK]](https://mega.nz/folder/nA1hVTwA#GPjsBxQknpjeg4-tPkIC1g)
-![](https://cdn.discordapp.com/attachments/689201598605688960/1071580818650181723/screenshot248_1.jpg)
+# [5.скин лучщего играка (имхо)Red_Pixel](https://mega.nz/file/5gJjkboI#ZBHZujL7VAC4UgR611N5c-FYo33jlDZdaL5JvcJQiw8)
+![](https://media.discordapp.net/attachments/1172322297227522070/1196285015928098856/screenshot054.jpg?ex=65b7123d&is=65a49d3d&hm=615a17debaf166b545298d72f761900f093ae5ecf895f355ea89b9f63edc4d1b&=&format=webp&width=1202&height=676)
 
 # [4. скин Azerino но это скин hvick225 просто в 2023](https://mega.nz/file/JxBCXKjQ#656W7TqVz8gYAxW-kU2mONOV7vC3DwDKLxjkDVCE6Xs)
 ![](https://media.discordapp.net/attachments/1172322297227522070/1196283470129922058/screenshot051.jpg?ex=65b710cd&is=65a49bcd&hm=c85acb34bce7f8d76d182409d866d16d073d1a47dacaa11aba80eff942041a1d&=&format=webp&width=1202&height=676)
