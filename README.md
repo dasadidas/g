@@ -1,4 +1,4 @@
-# Все ку, это мои пак Скинов для осу.
+# Всем ку, это мои пак Скинов для осу.
 
 # [5.скин лучщего играка (имхо)Red_Pixel](https://mega.nz/file/5gJjkboI#ZBHZujL7VAC4UgR611N5c-FYo33jlDZdaL5JvcJQiw8)
 ![](https://media.discordapp.net/attachments/1172322297227522070/1196285015928098856/screenshot054.jpg?ex=65b7123d&is=65a49d3d&hm=615a17debaf166b545298d72f761900f093ae5ecf895f355ea89b9f63edc4d1b&=&format=webp&width=1202&height=676)
