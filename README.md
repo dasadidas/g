@@ -4,7 +4,7 @@
 ![](https://cdn.discordapp.com/attachments/1231883139924758600/1231883277573554257/screenshot069.jpg?ex=663893b4&is=66261eb4&hm=bcb2fab45b765ea4a522d910e1a6433b1bd0cecf225acc2deb39ed36608a6a49&)
 
 # [4. скин Azerino но это скин hvick225 просто в 2023](https://mega.nz/file/JxBCXKjQ#656W7TqVz8gYAxW-kU2mONOV7vC3DwDKLxjkDVCE6Xs)
-![](https://media.discordapp.net/attachments/1172322297227522070/1196283470129922058/screenshot051.jpg?ex=65b710cd&is=65a49bcd&hm=c85acb34bce7f8d76d182409d866d16d073d1a47dacaa11aba80eff942041a1d&=&format=webp&width=1202&height=676)
+![](https://media.discordapp.net/attachments/1231883139924758600/1231883771364773950/screenshot071.jpg?ex=662770aa&is=66261f2a&hm=43a319901233d3e9cf0a584467e890e070b7f366f62b6d7a7891f306f59e3093&=&format=webp&width=837&height=471)
 
 # [3.Follon скин имхо бомбезный](https://mega.nz/file/1spGSDCL#CocMmT1Y9XgR1Lp7gufbHXocrW6-7Sbt5XyMGNiyBTQ)
 ![](https://media.discordapp.net/attachments/1172322297227522070/1196282814040121414/screenshot050.jpg?ex=65b71030&is=65a49b30&hm=1d6aaa220b84132ea9c4e66fd42954831f9190258b7a706d455642119b9f6c1e&=&format=webp&width=1202&height=676)
