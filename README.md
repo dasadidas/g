@@ -10,8 +10,8 @@
 ![](https://media.discordapp.net/attachments/1231883139924758600/1231884154916962304/screenshot072.jpg?ex=66389485&is=66261f85&hm=43a9aaf764fb8dcb0dc5c5ce7561a629dca9f07e2718953ef4f10fb030f4d70f&=&format=webp&width=837&height=471)
 
 # [2. новый скин Талалы bownup](https://mega.nz/file/5hogyZgK#owRtw_2WZSQ_OHTjkiH8E5nTAGf846P9BZ5EnVuhiOo)
-![](https://media.discordapp.net/attachments/1172322297227522070/1196281495434830005/screenshot047.jpg?ex=65b70ef6&is=65a499f6&hm=deb7d96ebdd7e41358627d862eca750a9ace613f8d223fd0e77d33f6d9d31715&=&format=webp&width=1202&height=676)
+![](https://cdn.discordapp.com/attachments/1231883139924758600/1231884737199472682/screenshot074.jpg?ex=66389510&is=66262010&hm=231cf43f47543dd6e66d5f08105332a1c56a71e4b671a2c8b7472ddbd834b4f0&)
 
 # [1. Bowdown олдовый скин Талалы](https://mega.nz/file/494BmThD#Fpx-XCwxZebOMyG5pt0r7_S082X9bHKBlidujO0HQ6w)
-![](https://media.discordapp.net/attachments/1172322297227522070/1196279345329754142/screenshot042.jpg?ex=65b70cf5&is=65a497f5&hm=f2343e175ba72441fd94c2bcd5340ae8571d81370b69d0e82574c7ec28305e96&=&format=webp&width=1202&height=676)
+![](https://media.discordapp.net/attachments/1231883139924758600/1231885144953192448/screenshot075.jpg?ex=66389571&is=66262071&hm=f51f3324d5a57c45a7d9f4b0d53c2bbbb5affbd78a32de1423f09cbecd20a462&=&format=webp&width=837&height=471)
 
