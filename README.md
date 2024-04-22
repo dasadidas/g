@@ -7,7 +7,7 @@
 ![](https://media.discordapp.net/attachments/1231883139924758600/1231883771364773950/screenshot071.jpg?ex=662770aa&is=66261f2a&hm=43a319901233d3e9cf0a584467e890e070b7f366f62b6d7a7891f306f59e3093&=&format=webp&width=837&height=471)
 
 # [3.Follon скин имхо бомбезный](https://mega.nz/file/1spGSDCL#CocMmT1Y9XgR1Lp7gufbHXocrW6-7Sbt5XyMGNiyBTQ)
-![](https://media.discordapp.net/attachments/1172322297227522070/1196282814040121414/screenshot050.jpg?ex=65b71030&is=65a49b30&hm=1d6aaa220b84132ea9c4e66fd42954831f9190258b7a706d455642119b9f6c1e&=&format=webp&width=1202&height=676)
+![](https://media.discordapp.net/attachments/1231883139924758600/1231884154916962304/screenshot072.jpg?ex=66389485&is=66261f85&hm=43a9aaf764fb8dcb0dc5c5ce7561a629dca9f07e2718953ef4f10fb030f4d70f&=&format=webp&width=837&height=471)
 
 # [2. новый скин Талалы bownup](https://mega.nz/file/5hogyZgK#owRtw_2WZSQ_OHTjkiH8E5nTAGf846P9BZ5EnVuhiOo)
 ![](https://media.discordapp.net/attachments/1172322297227522070/1196281495434830005/screenshot047.jpg?ex=65b70ef6&is=65a499f6&hm=deb7d96ebdd7e41358627d862eca750a9ace613f8d223fd0e77d33f6d9d31715&=&format=webp&width=1202&height=676)
