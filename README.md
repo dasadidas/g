@@ -1,5 +1,5 @@
 # Всем ку, это мои пак Скинов для осу.
-# [6.скин ректигона (https://mega.nz/file/5gJjkboI#ZBHZujL7VAC4UgR611N5c-FYo33jlDZdaL5JvcJQiw8)
+# [6.скин ректигона ](https://mega.nz/file/UhhlQLgA#XxQZoFlNN391GpdUqKMzzywL6wC839sGREgm5MVXwfE)
 ![](https://cdn.discordapp.com/attachments/1231883139924758600/1231885808223387748/screenshot076.jpg?ex=66389610&is=66262110&hm=5748d011fb7219760340daaeea5156b4ab1f39614846f7b41d9954a3cd91824d&)
 
 # [5.скин лучщего играка (имхо)Red_Pixel](https://mega.nz/file/5gJjkboI#ZBHZujL7VAC4UgR611N5c-FYo33jlDZdaL5JvcJQiw8)
