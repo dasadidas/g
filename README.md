@@ -1,7 +1,7 @@
 # Всем ку, это мои пак Скинов для осу.
 
 # [5.скин лучщего играка (имхо)Red_Pixel](https://mega.nz/file/5gJjkboI#ZBHZujL7VAC4UgR611N5c-FYo33jlDZdaL5JvcJQiw8)
-![](https://media.discordapp.net/attachments/1172322297227522070/1196285015928098856/screenshot054.jpg?ex=65b7123d&is=65a49d3d&hm=615a17debaf166b545298d72f761900f093ae5ecf895f355ea89b9f63edc4d1b&=&format=webp&width=1202&height=676)
+![](https://cdn.discordapp.com/attachments/1231883139924758600/1231883277573554257/screenshot069.jpg?ex=663893b4&is=66261eb4&hm=bcb2fab45b765ea4a522d910e1a6433b1bd0cecf225acc2deb39ed36608a6a49&)
 
 # [4. скин Azerino но это скин hvick225 просто в 2023](https://mega.nz/file/JxBCXKjQ#656W7TqVz8gYAxW-kU2mONOV7vC3DwDKLxjkDVCE6Xs)
 ![](https://media.discordapp.net/attachments/1172322297227522070/1196283470129922058/screenshot051.jpg?ex=65b710cd&is=65a49bcd&hm=c85acb34bce7f8d76d182409d866d16d073d1a47dacaa11aba80eff942041a1d&=&format=webp&width=1202&height=676)
