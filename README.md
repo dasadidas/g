@@ -1,4 +1,7 @@
 # Всем ку, это мои пак Скинов для осу.
+
+# [7.скин пук-хрюк-рюка ](https://mega.nz/file/VtYD0Y5K#_GURM60zjhx31pW9HJA2o98HxymoHetWgVac-LHn3eE)
+
 # [6.скин ректигона ](https://mega.nz/file/UhhlQLgA#XxQZoFlNN391GpdUqKMzzywL6wC839sGREgm5MVXwfE)
 ![](https://cdn.discordapp.com/attachments/1231883139924758600/1231885808223387748/screenshot076.jpg?ex=66389610&is=66262110&hm=5748d011fb7219760340daaeea5156b4ab1f39614846f7b41d9954a3cd91824d&)
 
@@ -16,4 +19,3 @@
 
 # [1. Bowdown олдовый скин Талалы](https://mega.nz/file/494BmThD#Fpx-XCwxZebOMyG5pt0r7_S082X9bHKBlidujO0HQ6w)
 ![](https://media.discordapp.net/attachments/1231883139924758600/1231885144953192448/screenshot075.jpg?ex=66389571&is=66262071&hm=f51f3324d5a57c45a7d9f4b0d53c2bbbb5affbd78a32de1423f09cbecd20a462&=&format=webp&width=837&height=471)
-
